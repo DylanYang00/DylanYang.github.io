@@ -3,4 +3,4 @@
 
 My github homepage
 
-(waiting for futher edition...)
+(futher edition following...)
